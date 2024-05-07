@@ -1,8 +1,8 @@
-91社区最新地址👋(最新更新时间2023-12-21)
+91社区最新地址👋(最新更新时间2024-05-07)
 
-91官网 https://91share.net https://91share.vip
+91官网 https://91share.tv https://91share.vip https://91share.tw https://91share.club
 
-91社区: https://91sq.club  https://91sq.org  https://91sq.icu
+91社区: https://91lt.co https://91lt.tv https://91lt.tw https://91lt.club
 
 91黑料: https://91hl.co https://91bl.top
 
@@ -14,7 +14,7 @@
 
 91社区备用线路3 https://91lt.co https://91lt.tv https://91lt.xyz
 
-91社区永久地址（需科学⬆️网工具） https://91share.net https://91share.vip
+91社区永久地址（需科学⬆️网工具） https://91share.tv https://91share.club
 
 【强烈推荐】 91吃瓜TG频道： https://t.me/share9191
 
